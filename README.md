@@ -324,7 +324,8 @@ Quero construir sistemas cada vez mais robustos, escaláveis e fáceis de manter
 # 📫 Contato
 
 💻 GitHub: **luizkdz**
-
+Celular:(31) 99570-5929
+Linkedin:https://www.linkedin.com/in/luiz-gustavo-cardoso-346646284/
 ---
 
 ⭐ Obrigado por visitar meu perfil!
